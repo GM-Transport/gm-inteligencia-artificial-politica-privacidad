@@ -1,0 +1,1 @@
+# GM Inteligencia Artificial - Terminos y Condiciones
